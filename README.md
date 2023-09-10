@@ -1,1 +1,1 @@
-Uwin , Let all Win
+Uwin , Only U Win
